@@ -21,4 +21,6 @@ Desafio da DIO
 
 - _2 colheres de chá de mostarda_
 
+- _3 colheres de sopa de margarina_
+
 - _1 vidro de cogumelos_
