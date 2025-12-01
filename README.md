@@ -24,3 +24,28 @@ Desafio da DIO
 - _3 colheres de sopa de margarina_
 
 - _1 vidro de cogumelos_
+
+## Filé de Salmão ao Forno Facílimo
+
+- __Receita__
+
+- _500 g de filé de salmão_
+
+- _Orégano_
+
+- _Sal a gosto_
+
+- _Limão_
+
+- _Azeitonas fatiadas sem caroço_
+
+- _3 colheres de sopa de Molho de soja (shoyu)_
+
+- _Azeite a gosto_
+
+- _1/2 cebola fatiada_
+
+
+
+
+
